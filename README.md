@@ -4,7 +4,7 @@
 
 
 
-### NOW Studing
+### NOW Studying
 
 ---
 
